@@ -1,4 +1,0 @@
-# About Me
-Hi, my name is Nicole Bourque. Currently, I am working part-time at Starbucks Canada, as a contract employee for Maple Bear Global Schools, and am a full-time student at Algonquin College. I have a bachelor's degree in English Literature & Rhetoric Studies with a minor in Music, and a specialization in Degital Media Communications from The University of Waterloo, as well as a Masters degree in Children's Literature from Trinity College Dublin, in Ireland!
-
-To successfully get my Master's, I had to move to Ireland, where I spent 2 years with my, now fiance, making memories and drinking pints.
